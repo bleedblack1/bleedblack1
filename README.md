@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Engineer by degree.<br>🤖 AI explorer by curiosity.<br>💡 Entrepreneur by mindset.<br><br>I build things that think, break them, fix them, and then try to scale them.<br>Currently turning coffee ☕ into code and ideas into products.<br><br>If it involves tech, intelligence, or bold experiments — I’m in. 🚀<br>
+I build things that think, break them, fix them, and then try to scale them.<br>Currently turning coffee ☕ into code and ideas into products.<br><br>If it involves tech, intelligence, or bold experiments — I’m in. 🚀<br>
 
 
 ## 🌐 Socials:
